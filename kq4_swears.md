@@ -1,7 +1,7 @@
 ## AGI
 
-ass
-asshole
+ass  
+asshole  
 cock
 cunt
 dick
